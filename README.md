@@ -1,1 +1,1 @@
-https://maznu007.github.io/portfolio/
+live - https://maznu007.github.io/portfolio/
